@@ -1,0 +1,1 @@
+tive um pouco de dificuldade em por o assunto em dia, to correndo atras do atraso, prentendo fzr as atividades de hj, proposto do pelo canvas, quero começar o trabalho em dupla. e minha dificuldade ta sendo acompanhar os assuntos já que é mt informção e as vezes me perco
